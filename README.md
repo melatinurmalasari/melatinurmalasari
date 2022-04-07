@@ -1,7 +1,8 @@
-### Hi there I'm Melati Nur Malasari 👋
+### Hi there
+### I'm Melati Nur Malasari 👋
 
 
-i'm a student
+
 
 
 - 👩🏻 I’m a student
