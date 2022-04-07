@@ -16,4 +16,4 @@
 
 
 
-### " do a best thing in any situation!"
+### " Do a best thing in any situation!"
