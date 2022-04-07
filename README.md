@@ -4,8 +4,7 @@
 
 
 
-
-- 👩🏻 I’m a student
+- 🎓 I’m a student
 - 📚 I’m study Informatic and Computer Engineering
 - 👩🏻 Pronounce she/her
 - 🎧 Pop, Kpop, Jazz
